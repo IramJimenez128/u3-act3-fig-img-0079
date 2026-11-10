@@ -1,0 +1,2 @@
+# u3-act3-fig-img-0079
+VA Vision Artificial
